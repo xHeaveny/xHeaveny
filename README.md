@@ -1,4 +1,4 @@
-### Hi there 👋
+### just a person who plays valorant and helps discord... also programming bots
 
 <!--
 **xHeaveny/xHeaveny** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
